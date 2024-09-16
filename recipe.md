@@ -7,6 +7,7 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 30g turmeric extract
+- 5000mg fish oil
 - ...
 
 ## Instructions:
